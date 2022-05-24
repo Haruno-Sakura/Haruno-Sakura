@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Haruno-Sakura
 - 👀 I’m interested in Science
 - 🌱 I’m currently learning Coding
-- 💞️ I’m looking to collaborate on I don't know yet
+- 💞️ I’m looking to collaborate on I don't know what
 - 📫 How to reach me It's a secret!
 
 <!---
